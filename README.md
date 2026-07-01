@@ -6,7 +6,7 @@
 
 
 <div align="center">
-<img width="717" alt=[https://i.pinimg.com/736x/e3/43/86/e34386a942263e38ffea0bca74fc9a8d.jpg" />
+<img width="717" alt=[https://i.pinimg.com/736x/e3/43/86/e34386a942263e38ffea0bca74fc9a8d.png" />
 
 <div align="center">
 
