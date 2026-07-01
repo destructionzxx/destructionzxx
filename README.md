@@ -1,8 +1,8 @@
 <div align="center">
 
   
-  _$\text{\color{#ff0000}⋮ ⌗ ┆  "The Devil made me do it-.. but I also kinda wanted to!!"　𐂯
-  }$_
+  $\text{\color{#ff0000}⋮ ⌗ ┆  "The Devil made me do it-.. but I also kinda wanted to!!"　𐂯
+  }$
 
 
 <div align="center">
