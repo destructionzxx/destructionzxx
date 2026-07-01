@@ -1,7 +1,7 @@
 <div align="center">
 
   
-  $\text{\color{#bfb0a3}︵︵　 why can't we live forever instead?　𐂯
+  $\text{\color{#ff0000}︵︵　 "The Devil made me do it-.. but I also kinda wanted to!!"　𐂯
   }$ 
 
 
