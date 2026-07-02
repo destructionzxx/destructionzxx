@@ -13,6 +13,7 @@
 
   
   $\text{\color{#ff0000}   ｡𖦹°‧ ⠀ "Well, that was fun... Goodbye!"　
+  }$ 
 
   $\text{\color{#ff0000} 𓏴𓏴⠀I did not make the art above..
   }$ 
