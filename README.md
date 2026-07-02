@@ -1,7 +1,7 @@
 <div align="center">
 
   
-  $\text{\color{#ff0000}⋮ ⌗ ┆  "The Devil made me do it-.. but I also kinda wanted to!!"　𐂯
+  $\text{\color{#ff0000}⋮ ⌗ ┆  "The Devil made me do it-.. but I also kinda wanted to!!"　.✦ ݁˖
   }$
 
 
@@ -16,7 +16,7 @@
   }$ 
 
 
-$\text{\color{#ff0000}  ౿ ݁ ⠀ .⠀ ⠀c+h  enc⠀ ⠀︵⠀⠀ do not copy or take inspo thx !⠀ ⠀ ˚ 
+$\text{\color{#ff0000}  ⤷ ゛c+h  enc ˎˊ˗⠀⠀︵⠀⠀ do not copy or take inspo thx !⠀  ๋ ࣭ ⭑⠀
   }$ 
   
 
