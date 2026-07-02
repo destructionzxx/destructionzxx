@@ -1,7 +1,7 @@
 <div align="center">
 
   
-$$\large\text{Slightly Larger Text}$$ $\text{\color{#ff0000} ┆ ⌗  "The Devil made me do it-.. but I also kinda wanted to!!"　
+$\text{\color{#ff0000} ┆ ⌗ 　$$\large\text{"The Devil made me do it-.. but I also kinda wanted to!!"$$ 
  }$
 
 
