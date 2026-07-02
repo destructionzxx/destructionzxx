@@ -21,7 +21,7 @@
 $\text{\color{#ff0000}  ⤷ ゛The Birds Are Plotting + 2econd 2ight 2eer ˎˊ˗⠀⸝⸝⠀⠀ do not copy or take inspo thx !.. ๋ ࣭ ⭑⠀
   }$ 
 
-  $\text{\color{#ff0000}  ˑ 𓈒 𐔌 bmf , im very nice i swear ͡꒱ ۫
+  $\text{\color{#ff0000}  ˑ 𓈒 𐔌 bmf , im very nice i swear..maybe ͡꒱ ۫
   }$ 
   
 
