@@ -11,7 +11,7 @@ $\text{\color{#ff0000} ┆ ⌗ "The Devil made me do it-.. but I also kinda want
 <div align="center">
 
   
-  $\text{\color{#ff0000}   ｡𖦹°‧ ⠀ "Well, that was fun... Goodbye!"　⋆˙⟡
+  $\text{\color{#ff0000}   ｡𖦹°‧ ⠀ "I'm a pyscho, babe! Come and go out my mind!!"　⋆˙⟡
   }$ 
 
   $\text{\color{#ff0000} 𓏴𓏴⠀i did not make the art above.. 𓏵
