@@ -12,9 +12,11 @@
 <div align="center">
 
   
-  $\text{\color{#ff0000}  ｡𖦹°‧ ⠀ "Well, that was fun... Goodbye!"⠀I did not make the art above..　𓏴𓏴
+  $\text{\color{#ff0000}  ｡𖦹°‧ ⠀ "Well, that was fun... Goodbye!"　𓏴𓏴
   }$ 
 
+  $\text{\color{#ff0000}  ｡𖦹°‧ ⠀ I did not make the art above..
+  }$ 
 
 $\text{\color{#ff0000}  ⤷ ゛The Birds Are Plotting + 2econd 2ight 2eer ˎˊ˗⠀⠀︵⠀⠀ do not copy or take inspo thx !..int  ๋ ࣭ ⭑⠀
   }$ 
