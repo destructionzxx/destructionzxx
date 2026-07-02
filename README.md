@@ -2,7 +2,7 @@
 
   
  ##$\text{\color{#ff0000} ┆ ⌗  "The Devil made me do it-.. but I also kinda wanted to!!"　
-}$
+ }$
 
 
 <div align="center">
