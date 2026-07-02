@@ -12,11 +12,11 @@
 <div align="center">
 
   
-  $\text{\color{#ff0000}  𓏼⠀ ⠀ i block freely!⠀　𓏴𓏴
+  $\text{\color{#ff0000}  𓏼⠀ ⠀ "Well, that was fun... Goodbye!"⠀　𓏴𓏴
   }$ 
 
 
-$\text{\color{#ff0000}  ౿ ݁ ⠀ .⠀ ⠀c+h heavily enc⠀ ⠀︵⠀⠀ dnc or inspo!⠀ ⠀ ˚ 
+$\text{\color{#ff0000}  ౿ ݁ ⠀ .⠀ ⠀c+h  enc⠀ ⠀︵⠀⠀ do not copy or take inspo thx !⠀ ⠀ ˚ 
   }$ 
   
 
